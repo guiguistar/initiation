@@ -2,4 +2,4 @@
 
 Vidéos disponibles sur youtube:
 
-https://www.youtube.com/watch?v=SfcuoQxEqSg&list=PLRSQkf_isp_0b2-6Bu1V89jzb9i1Wfptq
+https://www.youtube.com/watch?v=FEDPkLIXTrY&list=PLRSQkf_isp_3w-QdhdN4vevtP2H3YKaHb
